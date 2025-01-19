@@ -7,3 +7,4 @@
 
 Ссылка на видео Задача 2.2 часть 2: https://disk.yandex.ru/i/Q9881gd4uOXzpQ
 
+ссылка на видео Задача 2.3: https://disk.yandex.ru/i/IJdmN76A9J7NOA
